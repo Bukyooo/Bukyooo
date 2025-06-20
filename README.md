@@ -2,7 +2,7 @@
 
  ,  ,  ,  ,🌻 BUKYOOO 🧩 ,  ,  ,  ,    
 (( — or Bulfkys,Ben _!!_   / 13teen years old
-any/mirror/name pronouns. . . Agender 
+any/mirror/name pronouns. . . Genderfluid + Panromantic ^^
 Indonesia GMT+7 - ID/ENG , Hobbiyst artist
  n is learning 2 animated!! , , ,  ![Image](https://github.com/user-attachments/assets/f1711d92-c2aa-4806-a0f0-2dd603776b37)
 
