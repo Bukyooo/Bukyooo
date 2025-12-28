@@ -1,7 +1,7 @@
 ![Image](https://github.com/user-attachments/assets/801df1aa-e84d-4a86-9a2e-9d2bb677f89e)
 
  ,  ,  ,  ,🌻 BUKYOOO 🧩 ,  ,  ,  ,    
-(( — or Bulfkys,Ben _!!_   / 13teen years old
+(( — or Bulfkys,Ben _!!_   / Minor
 any/mirror/name pronouns. . . Genderfluid + Panplatonic + quiromantic ^^
 Indonesia GMT+7 - ID/ENG , Hobbiyst artist
  n is learning 2 animated!! , , ,  ![Image](https://github.com/user-attachments/assets/f1711d92-c2aa-4806-a0f0-2dd603776b37)
