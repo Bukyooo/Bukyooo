@@ -9,3 +9,5 @@ Indonesia GMT+7 - ID/ENG , Hobbiyst artist
 ![Image](https://github.com/user-attachments/assets/e9855df0-31a1-432b-b8f4-f84e23a09b5d)—( Hhihij welcome to my GitHub ^_^ I love to draw and play W my friend,I also like cats n chocolate milk and and chicken and my favourite colour is red.My favourite and comfort character is Noob :DD I love reading analysis stuff and documentaries ![Image](https://github.com/user-attachments/assets/79fe4465-09c7-412f-8297-52988ccf0c04)
 
  L : :  [Strawpage](https://0bukiyon.straw.page) / [Twitter](https://x.com/0Bukiyon?t=TdZvF9XWrTuYCiW6R7MrNw&s=09) 
+
+![Visitors](https://api.visitorbadge.io/api/combined?path=https%3A%2F%2Fgithub.com%2FBukyooo&label=Visitor%20(%5Eo%5E)&labelColor=%23dce775&countColor=%23697689&style=flat&labelStyle=upper)
